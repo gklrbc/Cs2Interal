@@ -1,3 +1,3 @@
-# Cs2Interal 
+# Cs2External
 
 AIMBOT DON'T WORK NOW
